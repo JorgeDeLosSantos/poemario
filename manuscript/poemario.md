@@ -35,33 +35,26 @@ que quisieron experimentar el mundo que para ellos aun era pecado...
 
 # Sonríe pequeña
 
-¡Abrázame fuerte cariño!
+¡Abrázame fuerte cariño!  
+son tan tristes las despedidas,  
+tan llenas de eso que no se anhela,  
+frías y silenciosas,  
+he mirado tus ojos y tú los míos,  
+quise no llorar y he sonreído.  
 
-son tan tristes las despedidas,
-  
-tan llenas de eso que no se anhela,
-  
-frías y silenciosas,
-  
-he mirado tus ojos y tú los míos,
-  
-quise no llorar y he sonreído.
-    
-  
+¿Y qué pasará mañana?, ¿Me extrañarás?,  
+buscamos en los recuerdos y encontramos las esperanzas,  
+ilusión pura.  
 
-¿Y qué pasará mañana?, ¿Me extrañarás?,
-buscamos en los recuerdos y encontramos las esperanzas,
-ilusión pura.
+Y parece el mundo no detenerse,  
+todo corre a prisa, más aún el tiempo,  
+mis manos imploran que no te alejes,  
+más es inevitable, necesario e inexplicable.  
 
-Y parece el mundo no detenerse,
-todo corre a prisa, más aún el tiempo,
-mis manos imploran que no te alejes,
-más es inevitable, necesario e inexplicable. 
-
-Ahora ve pequeña, podrás hacerlo,
-Yo esperaré con ansias, alimentándome de sueños,
-y sí, te extrañaré, pero… es necesario,
-sonríe, aún estamos juntos.
+Ahora ve pequeña, podrás hacerlo,  
+Yo esperaré con ansias, alimentándome de sueños,  
+y sí, te extrañaré, pero… es necesario,  
+sonríe, aún estamos juntos.  
 
 Veo tus manos tras un cristal,
 las mismas que ayer con delicadeza besé,
